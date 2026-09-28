@@ -1,2 +1,0 @@
-# sonya_repository
-
